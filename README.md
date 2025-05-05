@@ -1,0 +1,1 @@
+# simposon-1-3rd-rule
